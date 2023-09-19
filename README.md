@@ -1,3 +1,3 @@
 # desenvolvimento_html
 
-Página pontos turísticos da Cidade de Recife
+Página pontos turísticos da Cidade do Recife
