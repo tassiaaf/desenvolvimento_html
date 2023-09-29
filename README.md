@@ -4,4 +4,4 @@ Página pontos turísticos da Cidade do Recife
 
 Links de referências:
 
-https://drive.google.com/file/d/11tSMl9k4ComD9vt9-yZf8KD0aq15VMV-/view?usp=sharing
+https://drive.google.com/drive/folders/1kxb04SXL0BSinOwMur9gAr-_dI_v8ASq?usp=sharing
